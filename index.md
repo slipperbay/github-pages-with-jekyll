@@ -1,5 +1,5 @@
 ---
-title: "Welcome to my blog"
+title: "No One Died from This, Thank Goodness"
 ---
 
-I'm glad you are here. I plan to talk about ...
+The key is to ask the question is the transmission happening as quicky amongst the vaccinated ...
